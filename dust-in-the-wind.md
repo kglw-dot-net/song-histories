@@ -1,0 +1,5 @@
+# Dust In The Wind
+
+As they begin to run away from the killing ground, the Yavapai girl is shot. Blue ducks behind a rock and watches the girl die, before noticing where the shots had come from. Thus begins chapter six. Seeing where the men are, Blue sneaks through the trees and bushes while making out that there are four men: three hunters and a man watching the horses. Blue takes out the man by the horses and ties their leads to a tree for later. He then targets the three others from a distance with a rifle he had taken. One stands guard while the other two examine the body. Blue shoots the head of the standing man while the others cower in fear. He then blasts one of their right legs off. This is only the beginning of Blue’s plans. “Dust In The Wind” is a suspenseful track led by heavy drumming and decorated with strange piano and high-pitched, feedback-like tones. It was released on February 22nd, 2013 on *[Eyes Like The Sky](https://kglw.net/discography/eyes-like-the-sky).* 
+
+“Dust In The Wind” has not been played live.

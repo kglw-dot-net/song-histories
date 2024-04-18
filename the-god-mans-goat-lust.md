@@ -1,0 +1,7 @@
+# The God Man’s Goat Lust
+
+**This song contains subject matter that may not be suitable for all readers as it deals with the topic of sexual assault.**
+
+Chapter four begins in the backroom of a chapel at Fort Whipple. Here, the God Man satisfies his “goat-lust” with a Yavapai girl taken during the attack. A gun is pointed to her head while she is pushed onto the altar. She never says a word. When the God Man ends his assault, he walks out the door to the front of the chapel but is killed by Blue who comes up behind him with a knife and slices his neck. Seeing the girl, he grabs weapons, money and resources as well as two horses, and the Yavapai take off into the desert. The atmospheric instrumental starts with creepy, discordant piano and echoing guitar before reaching a steady beat after the God Man is killed, which releases the tension. Despite the song's uncomfortable subject matter, the band created a [t-shirt](https://www.reddit.com/r/KGATLW/comments/z42muo/old_merch_the_band_had_from_2012_2014_all_of/?utm_source=share&utm_medium=web2x&context=3) with its name. Designed by Cangkang Serigala, it [depicts](http://cangkangserigala.blogspot.com/2013_02_01_archive.html) the head of Jesus Christ wearing his crown of thorns with his beard transforming into the face of a goat. “The God Man’s Goat Lust” was released on February 22nd, 2013 on *[Eyes Like The Sky](https://kglw.net/discography/eyes-like-the-sky)*. 
+
+“The God Man’s Goat Lust” has not been played live.

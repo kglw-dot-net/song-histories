@@ -1,0 +1,5 @@
+# Drum Run
+
+Chapter two of *[Eyes Like The Sky](https://kglw.net/discography/eyes-like-the-sky)* follows the aftermath of the raid. After being taken by the Yavapai-Apache men, Miguel O’Brien trains with them for ten years and learns a variety of new skills, such as hunting and running without leaving tracks. Despite his race, he is respected for his abilities and bravery and welcomed as a part of the tribe. At sixteen in the year 1864, he no longer goes by Miguel O’Brien. He instead is given the name “Eyes Like The Sky,” referring to his blue eyes. Like its name implies, the song is dominated by the sound of pounding drums but the rhythm is accompanied by harmonica, chanting, and reverberated crashing sounds similar to those heard in [“Hot Wax.”](https://kglw.net/song/hot-wax) The song was released on February 22nd, 2013 and was later used in the promotional video *[REISSUES CONFIRMED](https://www.youtube.com/watch?v=Y8pJ4zG0-J8)* for the band’s 2018 reissues of their early work.
+
+“Drum Run” has never been played live.
