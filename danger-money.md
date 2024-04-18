@@ -1,3 +1,5 @@
+# Danger $$$
+
 Opening up the first “canonical” Gizzard release is “Danger $$$” (pronounced Danger Money): a short and chaotic punk track with a few heavy time changes, a bunch of feedback, distorted harmonica, and simple lyrics that the band join together to sing. Sitting at a minute and forty-five seconds, it’s one of the shortest songs on *[Willoughby’s Beach](https://kglw.net/discography/willoughbys-beach)*, while also being one of its most explosive.
 
 <div style="text-align: center;"><iframe width="560" height="315" src="https://www.youtube.com/embed/CGx-TkpeAP8?si=WSMctrIkiHiU-B1j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe><div style="text-align: left;">
